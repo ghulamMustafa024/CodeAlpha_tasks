@@ -1,0 +1,1 @@
+Hello, my name is Ghulam Mustafa, and I'm a student of BBA studying in my 2nd year. These files I have uploaded are my tasks that I have completed as an intern at CodeAlpha, my domain is Finance and Investmen Analysis. Hope you like it, feel free to ask questions or give suggestions, I would love to hear that
